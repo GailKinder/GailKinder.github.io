@@ -9,4 +9,4 @@ I love engineering, and I am working towards a major in *Computer Systems Engine
 I also dabble in art which was another thing that drew me to engineering as engineering is
 a fun way to bring ideas and images to life!
 
-![Engineering Image](https://wallpapercave.com/w/wp2922953)
+![Engineering Image](wp2922953-engineering-wallpaper)
